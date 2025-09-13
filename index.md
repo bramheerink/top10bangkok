@@ -1,5 +1,7 @@
 # Top 10 Bangkok 
 
+** This is a work in progess **
+
 A compact guide of Bangkok, multiple  categories, only 10 items 🇹🇭
 
 ## First Time Essentials
@@ -8,11 +10,17 @@ A compact guide of Bangkok, multiple  categories, only 10 items 🇹🇭
 - Wat Arun, the Temple of Dawn
 - Chatuchak Weekend Market
 - Chinatown (Yaowarat Road)
-- Rooftop bars,
+- Rooftop bars, for example, Tichuca Rooftop Bar, Octave Rooftop Lounge & Bar (Marriott Sukhumvit), Scarlett Winebar
 - Wat Ratchanatdaram (Loha Prasat – the Iron Castle)
 - Wat Benchamabophit – the Marble Temple
 - Erawan Museum
 - Floating Markets (e.g. Damnoen Saduak, Amphawa)
+
+## Tours
+- Bike Tour, Co van Kessel, Bangkok Biking
+- Boat Tour, Chao Phraya Tourist Boat (Hop-On Hop-Off), Thonburi Klong Tour, Long-Tail Boat Night Adventure (BangkokBoat.com), Floating Market + Boat Ride Combos
+- Food Tour, A Chef’s Tour – Bangkok Food Tour, Secret Food Tours: Bangkok (Chinatown & Hua Lumphong), Old Siam Food Tour, Bangkok Backstreets Food Tour, The Ultimate Bangkok Food Tour (Mark Wiens / Migrationology / Bangkok Vanguards)
+
 
 ## 🌿 Local’s Alternative Top 10 in Bangkok
 
