@@ -21,28 +21,38 @@ A compact guide of Bangkok, multiple  categories, only 10 items 🇹🇭
 - Boat Tour, Chao Phraya Tourist Boat (Hop-On Hop-Off), Thonburi Klong Tour, Long-Tail Boat Night Adventure (BangkokBoat.com), Floating Market + Boat Ride Combos
 - Food Tour, A Chef’s Tour – Bangkok Food Tour, Secret Food Tours: Bangkok (Chinatown & Hua Lumphong), Old Siam Food Tour, Bangkok Backstreets Food Tour, The Ultimate Bangkok Food Tour (Mark Wiens / Migrationology / Bangkok Vanguards)
 
-## 🎭 Cultural Spots
-	1.	MOCA – Museum of Contemporary Art
-Bangkok’s best modern art museum, showcasing both established Thai artists and emerging talent in a world-class building.
-	2.	Bangkok Art and Culture Centre (BACC)
-Contemporary art, design, photography, and performances in a vibrant rotating program — free entry, right by Siam.
-	3.	Jim Thompson House Museum
-Former residence of the American silk entrepreneur, a beautiful teak house with Thai art and antique collections.
-	4.	Thailand Cultural Centre
-Concerts, traditional dance, operas, and festivals — the heart of Bangkok’s performing arts.
-	5.	Rattanakosin Exhibition Hall
-Interactive exhibitions on Bangkok’s history, kings, and culture in a modern museum setting.
-	6.	Queen Sirikit Museum of Textiles
-Inside the Grand Palace grounds, focusing on Thai silk, royal dresses, and textile heritage.
-	7.	Bangkokian Museum (Bangkok Folk Museum)
-Small, charming museum showing how middle-class Bangkok families lived in the mid-20th century.
-	8.	Artist’s House (Baan Silapin, Khlong Bang Luang)
-Traditional wooden house by the canal, with puppet shows, local crafts, and a relaxed atmosphere.
-	9.	The National Gallery
-Close to Sanam Luang, featuring Thai classical art, royal portraits, and occasional international exhibits.
-	10.	H Gallery
-Independent contemporary art gallery in a restored mansion, with bold exhibitions from Thai and Asian artists.
 
+# 🎭 Top 10 Cultural Spots in Bangkok (off the beaten path)
+
+- **MOCA – Museum of Contemporary Art** [📍](https://goo.gl/maps/f3xuNkgpKpW7pKjU8)  
+  &nbsp;&nbsp;&nbsp;&nbsp;Bangkok’s best modern art museum, showcasing both established Thai artists and emerging talent in a world-class building.  
+
+- **Bangkok Art and Culture Centre (BACC)** [📍](https://goo.gl/maps/Vy3Nw1M7cWk)  
+  &nbsp;&nbsp;&nbsp;&nbsp;Contemporary art, design, photography, and performances in a vibrant rotating program — free entry, right by Siam.  
+
+- **Jim Thompson House Museum** [📍](https://goo.gl/maps/1V7hTVm5pgq)  
+  &nbsp;&nbsp;&nbsp;&nbsp;Former residence of the American silk entrepreneur, a beautiful teak house with Thai art and antique collections.  
+
+- **Thailand Cultural Centre** [📍](https://goo.gl/maps/rkPwiUPhVu82)  
+  &nbsp;&nbsp;&nbsp;&nbsp;Concerts, traditional dance, operas, and festivals — the heart of Bangkok’s performing arts.  
+
+- **Rattanakosin Exhibition Hall** [📍](https://goo.gl/maps/DVYLy7xWW5C2)  
+  &nbsp;&nbsp;&nbsp;&nbsp;Interactive exhibitions on Bangkok’s history, kings, and culture in a modern museum setting.  
+
+- **Queen Sirikit Museum of Textiles** [📍](https://goo.gl/maps/QD1aXrvZqUU2)  
+  &nbsp;&nbsp;&nbsp;&nbsp;Inside the Grand Palace grounds, focusing on Thai silk, royal dresses, and textile heritage.  
+
+- **Bangkokian Museum (Bangkok Folk Museum)** [📍](https://goo.gl/maps/VtEBrjVQbyJ2)  
+  &nbsp;&nbsp;&nbsp;&nbsp;Small, charming museum showing how middle-class Bangkok families lived in the mid-20th century.  
+
+- **Artist’s House (Baan Silapin, Khlong Bang Luang)** [📍](https://goo.gl/maps/jp9ttqQfLzH2)  
+  &nbsp;&nbsp;&nbsp;&nbsp;Traditional wooden house by the canal, with puppet shows, local crafts, and a relaxed atmosphere.  
+
+- **The National Gallery** [📍](https://goo.gl/maps/zPBpsQCdLME2)  
+  &nbsp;&nbsp;&nbsp;&nbsp;Close to Sanam Luang, featuring Thai classical art, royal portraits, and occasional international exhibits.  
+
+- **H Gallery** [📍](https://goo.gl/maps/zDRvU1C8DJu)  
+  &nbsp;&nbsp;&nbsp;&nbsp;Independent contemporary art gallery in a restored mansion, with bold exhibitions from Thai and Asian artists.  
 
 
 ## 🌿 Local’s Alternative Top 10 in Bangkok
