@@ -16,6 +16,22 @@ A compact guide of Bangkok, multiple  categories, only 10 items 🇹🇭
 - Erawan Museum
 - Floating Markets (e.g. Damnoen Saduak, Amphawa)
 
+# 🙏 Do & Don't Top 10 for Cultural Highlights in Bangkok
+
+### ✅ Do
+1. **Cover shoulders and knees** – wear a t-shirt, light shirt, or dress/skirt below the knee.  
+2. **Wear light fabrics** – cotton or linen keeps you cool in the heat.  
+3. **Bring a scarf/shawl** – easy to cover shoulders when needed.  
+4. **Slip-on shoes** – handy since you often remove shoes before entering temples.  
+5. **Dress neatly** – simple, clean, and respectful always works.  
+
+### ❌ Don’t
+6. **No sleeveless tops** – tank tops and spaghetti straps are not accepted.  
+7. **No short shorts or mini-skirts** – even in the heat, keep knees covered.  
+8. **Avoid ripped or flashy clothes** – torn jeans, slogans, or party wear look disrespectful.  
+9. **Don’t wear hats or sunglasses inside** – remove them when entering temple grounds.  
+10. **No beachwear** – swimwear, crop tops, and flip-flops are a big no-go.
+
 ## Tours
 - Bike Tour, Co van Kessel, Bangkok Biking
 - Boat Tour, Chao Phraya Tourist Boat (Hop-On Hop-Off), Thonburi Klong Tour, Long-Tail Boat Night Adventure (BangkokBoat.com), Floating Market + Boat Ride Combos
@@ -100,11 +116,13 @@ A compact guide of Bangkok, multiple  categories, only 10 items 🇹🇭
 10.	Central Embassy / Central Chidlom – Upmarket malls blending luxury with Thai lifestyle.
 
 ## Pratical tips
-1. Keep hydrated, there is always a 7/11 shop near you where you can buy water.
+1. Keep hydrated, there is always a 7/11 shop near you where you can buy water. Don't drink the water from tap.
 2. Keep protected, when it's sunny, keep applying your body with SPF > 25 every 3 hours
 3. Traffic can be slow, use the Skytrain (BTS), or the Underground (MRT) to travel.
-4. Buy an esim, AIS, True, for your mobile data
+4. Buy an esim in an AIS or True Store, for your mobile data
 5. Download maps in Google Maps so you can use them offline.
 6. Be aware: ATM withdrawals incur a 250 Baht fee (around €7 or $6). Choosing ‘no conversion’ is almost always the cheaper option.
+7. In need of a ride, install the Grab app
+
 
 
